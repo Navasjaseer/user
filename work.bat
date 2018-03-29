@@ -1,4 +1,4 @@
-what a heavy worker
+what a heavy worker for slaves
  
 
         get off the fucking job ........
@@ -7,3 +7,6 @@ what a heavy worker
         go and enjoy the blooody life
         adding some files
         
+     these are all for slaves..................
+     .................................................
+   
